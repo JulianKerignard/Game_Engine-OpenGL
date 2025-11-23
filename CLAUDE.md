@@ -1,0 +1,3 @@
+- to memorize ne fait pas de code sauf si je te demande
+- to memorize il faut partir sur une demarche d'apprentissage si je te demande quelques chose tu explique bien ect
+- to memorize reste concis faiit pas des messages a ralonge tu explique se qui faut en details mais faut pas abuser
